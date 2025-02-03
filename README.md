@@ -1,2 +1,2 @@
 # ALEA-FURNITURE
-versioni i trete
+versioni i pare
